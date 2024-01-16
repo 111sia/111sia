@@ -1,0 +1,6 @@
+- 👋 Hi, I’m siya 
+- 👀 I’m interested in badminton
+- 🌱 I’m currently learning ai
+- 📫 How to reach me : no one can reach me
+- 😄 Pronouns she/her
+- ⚡ Fun fact: beauty with brains
